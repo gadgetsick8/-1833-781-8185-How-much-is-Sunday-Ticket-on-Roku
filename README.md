@@ -1,0 +1,2 @@
+# -1833-781-8185-How-much-is-Sunday-Ticket-on-Roku
++1833,781,8185 How much is Sunday Ticket on Roku.This package costs $395.99 for the season or $99 per month, and you can add in NFL Game Pass, which streams live pre-season games and pre-recorded regular season games, for an extra $50. If you started out with the NFLST.TV To Go package but find yourself craving more NFL action, you can upgrade to Max at any time.
